@@ -16,6 +16,10 @@ For emergencies at any hour, the group also runs Frisco ER (12600 Rolater Rd #12
 - [What is a freestanding ER?](https://iccotx-freestandingerguide.blogspot.com/2026/09/what-is-freestanding-er-benefits-myths.html)
 - [Hay fever symptoms vs cold symptoms](https://iccotx.com/hay-fever-symptoms-vs-cold-symptoms/)
 
+## In the news
+
+- [24/7 Emergency Room in Frisco, TX With Board-Certified Physicians](https://www.openpr.com/news/4640129/24-7-emergency-room-frisco-tx-with-board-certified-physicians.html)
+
 Blogs: [ER vs Urgent Care Texas](https://iccotx-ervsurgentcare.blogspot.com/) · [Freestanding ER Texas Guide](https://iccotx-freestandingerguide.blogspot.com/) · [Frisco blog](https://iccotxfrisco.wordpress.com/). Also: [overview page](https://darling-quokka-96fdb3.netlify.app/) · [Google Site](https://sites.google.com/teamforcesolutions.com/iccotx-about) · [Tumblr](https://www.tumblr.com/iccotxtexas/828575294073995264/frisco-carrollton-plano-three-fast-growing)
 
 General information only, not medical advice.
