@@ -16,6 +16,10 @@ For emergencies at any hour, the group also runs Frisco ER (12600 Rolater Rd #12
 - [What is a freestanding ER?](https://iccotx-freestandingerguide.blogspot.com/2026/09/what-is-freestanding-er-benefits-myths.html)
 - [Hay fever symptoms vs cold symptoms](https://iccotx.com/hay-fever-symptoms-vs-cold-symptoms/)
 
+## Guest articles
+
+- [Does insurance cover a freestanding emergency room visit? What DFW patients should know](https://www.247healthblog.com/does-insurance-cover-a-freestanding-emergency-room-visit-what-dfw-patients-should-know/)
+
 ## In the news
 
 - [24/7 Emergency Room in Frisco, TX With Board-Certified Physicians](https://www.openpr.com/news/4640129/24-7-emergency-room-frisco-tx-with-board-certified-physicians.html)
